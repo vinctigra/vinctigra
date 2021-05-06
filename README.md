@@ -12,7 +12,7 @@ When the weather is good, with my wife, we go to the seaside to get away from it
 
 A world so beautiful and so calm when you dive into these abyss 🐟. And yet, if you only knew the number of bits of plastic that I pick up from the bottom of the sea… 🚯♻️
 
-So I'll have a coffee ☕️ and go back to learn my programming languages <💻 />.
+So I'll have a coffee ☕️ and get back to coding <💻 />.
 
 Take a look 👀 at my online portfolio and resume to learn more about my professional background. 
 
