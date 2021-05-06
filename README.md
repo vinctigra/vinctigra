@@ -17,6 +17,7 @@ So I'll have a coffee ☕️ and go back to learn my programming languages <💻
 Take a look 👀 at my online portfolio and resume to learn more about my professional background. 
 
 https://vinc-dev.com/
+
 https://www.linkedin.com/in/colas-vincent/
 
 Good visit and see you soon.
